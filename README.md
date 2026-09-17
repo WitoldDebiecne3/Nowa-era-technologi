@@ -3,3 +3,4 @@ W Nowej erze technologi będzie dostęp do całkowicie elektrycznych rozwiązań
 Radio drukarka kwantowa wyprze tradycyjny przemysł na przystanek do lamusa. 
 W przyszłości energia będzie bez paliw kopalnych i energii od sił przyrody. Energia będzie pozyskiwana z wolnej energii z urządzeń wolnej energii z mocy algorytmów AI tak jak w Zbroi Mark 85 Iron Men. To przemysł 21 wieku. 
 Bez zanieczyszczeń i baterii i akumulatorów czysta energia z wolnej energii. 
+Ci ludzie co sprzedają paliwa kopalne i pierwiastki na tony i uprawiają sport dostaną z rozpędu na wesoło kopa w dupę za kłamstwa że era pary jest lepsza od energii elektrycznej.  
